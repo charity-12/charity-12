@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **charitypendo5@gmail.com**
 
-- ⚡ Fun fact **I have five siblings. Three brothers and young sisters. We're all close in age, so most of us grew up attending the same schools.**
+- ⚡ Fun fact **I love coding.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
